@@ -1,2 +1,2 @@
 # TugasFungsiRekursif_Naufal-Jidan-Sabilillah_265150607111015
-Memenuhi Tugas Pemdas
+Terimah Kasih Pak sudah di buka dan isi tugas saya sesuai kemauan bapak
